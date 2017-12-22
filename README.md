@@ -1,0 +1,2 @@
+# pamirbd
+pamirbangladesh
